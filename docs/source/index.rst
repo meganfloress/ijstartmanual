@@ -118,5 +118,4 @@ Why Choose Official Canon Drivers and Instructions?
 Conclusion
 ----------
 
-Installing your Canon printer to your computer is a simple, user-friendly process when you use official drivers and setup instructions from **ij.start.canon**. Whether connecting wirelessly or via USB, following the recommended steps ensures smooth operation, reliable performance, and access to helpful Canon resources. Always remember to download drivers from official sources and keep them updated for the best printing experience.
-
+Installing your Canon printer to your computer is a simple, user-friendly process when you use official drivers and setup instructions from **ij.start.canon**. Whether connecting wirelessly or via USB, following the recommended steps ensures smooth operation, reliable performance, and access to helpful Canon resources. 
