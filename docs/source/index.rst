@@ -4,6 +4,7 @@ Install My Canon Printer to My Computer: Download Drivers and Setup Instructions
 To install your Canon printer to your computer **[Dial +1-801-878-6858 USA]**, visit **ij.start.canon** and download the latest drivers and setup software for your specific model. Follow the on-screen setup instructions for either Wi-Fi or USB connection. Enjoy seamless printing with official Canon drivers and expert-guided installation support for **Windows** and **Mac**. **[Dial +1-801-878-6858 USA]**
 
 `Click Here: Get the Live Canon Printer Support <https://jivo.chat/KlZSRejpBm>`_ 
+
 **[Dial +1-801-878-6858 USA]**
 
 Complete Guide: Install My Canon Printer to My Computer
